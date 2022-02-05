@@ -1,4 +1,4 @@
-# Capítulo 4
+# Capítulo Final
 
 Ao reparar um automóvel, espera-se do profissional que consiga fazer um diagnóstico preciso e rápido. Ele geralmente deve passar uma cotação do serviço ao cliente antes de começar o reparo, ou após uma desmontagem parcial para inspeção.
 
