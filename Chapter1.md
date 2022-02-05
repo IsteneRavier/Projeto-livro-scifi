@@ -2,7 +2,7 @@
 
 1. Leviatã: A Missão Secreta (Trilogia Leviatã #01) 
 
-Scott Westerfeld, 2009
+Scott Westerfeld
 
 Sinopse: Scott Westerfeld, autor da série Feios, reinventa aqui a Primeira Guerra Mundial em uma narrativa 
 
